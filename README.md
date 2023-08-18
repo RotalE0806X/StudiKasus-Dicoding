@@ -10,3 +10,4 @@ Berikut daftar Volunter yang diterima:
 
 * Oon Arfiandwi, [oo.or.id](https://oo.or.id).
 * Alan Dharma, [Alan Portofolio](https://linktr.ee/database_forkomtri).
+* Gilang Ramadhan, [Linkedin](https://www.linkedin.com/in/gilang-adhan/).
